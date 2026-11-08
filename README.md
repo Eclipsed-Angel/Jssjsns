@@ -1,1 +1,0 @@
-[![Reviewed on ScriptBlox](https://scriptblox.com/badge/The-Chosen-One-Brick-spray-text-and-sign-text-bypasserCreditsArcane-235463)](https://scriptblox.com/script/The-Chosen-One-Brick-spray-text-and-sign-text-bypasserCreditsArcane-235463)
